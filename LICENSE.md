@@ -1,4 +1,4 @@
-#  
+#  blox fruits Scripts stealth offers the most advanced blox fruits Script, with auto-collect and teleport. Perfect for dominating any match.
 
 
 
